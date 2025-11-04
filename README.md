@@ -1,1 +1,1 @@
-This is just a small website for the best band in the world.
+This is just a small website for the biggest band in the world.
